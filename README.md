@@ -5,6 +5,7 @@ meu nome é beatriz
 - gosto de jogar
 - amo the smiths e lana del rey 
 - gosto de ver filmes
+- quero fazer faculdade de farmacia
 - 😄
 
 
